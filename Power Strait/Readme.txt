@@ -1,0 +1,2 @@
+The BRSTMs are from a reupload of Power Strait v1.0 as the original link died.
+The Music is by Cochu U; the normal music was included in the original download, while the fast/Lap 3 music is custom made as I don't have the original saved.
